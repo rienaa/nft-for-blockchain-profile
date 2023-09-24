@@ -1,4 +1,4 @@
-# MY NFT FOR BLOCKCHAIN PROFILES
+# MY NFT FOR BLOCKCHAIN PROFILE
 
 - 0xriena (1).jpg
 - 0xriena (2).jpg
